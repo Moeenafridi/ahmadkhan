@@ -1,2 +1,2 @@
 # ahmadkhan
-Update my name
+MAYANO KHAN
